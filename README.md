@@ -31,3 +31,9 @@ Jejum de 15 horas e meia pois fui visitar minha avó.
 
 ### Refeição 1 - 13:30
 
+- 1 colher de feijão cozido;
+- 1/2 peito de frango;
+- couve refogada;
+- alface;
+- tomate;
+- cebola.
