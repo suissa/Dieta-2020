@@ -42,8 +42,14 @@ Jejum de 15 horas e meia pois fui visitar minha avó.
 
 ### Refeição 2 - 16:00
 
-- 100g queijo branco.
+- 50g queijo branco.
 
 ### Refeição 3 - 17:30
 
 - 30g cenoura crua com azeite e sal do himalaia.
+
+### Refeição 4 - 20:00
+
+- 50g guacamole;
+- 50g de queijo branco;
+- omelete com 3 claras.
