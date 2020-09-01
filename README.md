@@ -1,5 +1,7 @@
 # Dieta-2020
- Meu diário sobre a dieta que iniciei
+Meu diário sobre a dieta cetogênica que iniciei, com adicional de jejum intermitente.
+
+**Dica**: eu tomo mto café e suco que não trem açúcar nem carboidratos.
 
 ## 31/Agosto
 
@@ -37,3 +39,7 @@ Jejum de 15 horas e meia pois fui visitar minha avó.
 - alface;
 - tomate;
 - cebola.
+
+### Refeição 2 - 16:00
+
+- 100g queijo branco.
