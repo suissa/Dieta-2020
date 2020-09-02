@@ -53,3 +53,20 @@ Jejum de 15 horas e meia pois fui visitar minha avó.
 - 50g guacamole;
 - 50g de queijo branco;
 - omelete com 3 claras.
+
+
+## 02/Setembro
+
+Jejum de 16 horas.
+
+### Refeição 1 - 12:00
+
+Frango na panela com legumes, azeite e shoyo.
+
+- 100g frango (que eu comi, mas fiz com 300g);
+- pimentões;
+- tomates;
+- cenoura;
+- salsinha;
+- cebolinha;
+- cebola roxa.
