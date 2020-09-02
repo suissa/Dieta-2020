@@ -76,7 +76,7 @@ Frango na panela com legumes, azeite e shoyo.
 - 50g queijo branco;
 - 100g guacamole.
 
-### Refeição 3 - 20:30
+### Refeição 3 - 20:15
 
 Resto do Frango na panela com legumes do almoço.
 
