@@ -63,10 +63,21 @@ Jejum de 16 horas.
 
 Frango na panela com legumes, azeite e shoyo.
 
-- 100g frango (que eu comi, mas fiz com 300g);
+- 150g frango (que eu comi, mas fiz com 300g);
 - pimentões;
 - tomates;
 - cenoura;
 - salsinha;
 - cebolinha;
 - cebola roxa.
+
+### Refeição 2 - 18:00
+
+- 50g queijo branco;
+- 100g guacamole.
+
+### Refeição 3 - 20:30
+
+Resto do Frango na panela com legumes do almoço.
+
+- 150g frango;

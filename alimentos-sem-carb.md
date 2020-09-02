@@ -1,0 +1,32 @@
+Confira os alimentos sem carboidratos!
+
+- Couve-flor
+- Brócolis
+- Cenoura
+- Espinafre
+- Nozes
+- Sementes de girassol
+- Amêndoas
+- Peixes
+- Carne de porco, carneiro ou frango
+- Iogurte
+- Azeite de coco
+- Abacate
+- Ameixa
+- Repolho
+- Pepino
+- Carambola
+- Framboesa
+- Melão
+- Melancia
+- Pêssego
+- Quiabo
+- Tomate
+- Peito de Peru
+- Linhaça
+- Chá verde
+- Manteiga sem sal
+- Café
+- Ovo
+- Frutos do mar
+- Carnes de órgãos (fígado, rim, coração etc.)
