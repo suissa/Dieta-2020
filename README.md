@@ -104,6 +104,6 @@ Jejum de 17 horas.
 
 **Total de carboidratos: 1g**
 
-### Total de Carboidratos: 4,69g
+### 03/Setembro - Total de Carboidratos: 4,69g
 
 
