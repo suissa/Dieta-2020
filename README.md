@@ -81,3 +81,29 @@ Frango na panela com legumes, azeite e shoyo.
 Resto do Frango na panela com legumes do almoço.
 
 - 150g frango;
+
+
+---
+## 03/Setembro
+
+Jejum de 17 horas.
+
+### Refeição 1 - 13:15
+
+- 50g cenoura crua (2,25g carb lq);
+- 100g frango grelhado (0g carb);
+- 2 ovos mexidos (1,44g carb);
+- 10g bacon (0g carb).
+
+**Total de carboidratos: 3,69g**
+
+### Refeição 2 - 17:15
+
+- 60g queijo muçarela (0g carb);
+- 18g mortadela defumada (1g carb).
+
+**Total de carboidratos: 1g**
+
+### Total de Carboidratos: 4,69g
+
+
