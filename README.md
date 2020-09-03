@@ -3,6 +3,7 @@ Meu diário sobre a dieta cetogênica que iniciei, com adicional de jejum interm
 
 **Dica**: eu tomo mto café e suco que não trem açúcar nem carboidratos.
 
+---
 ## 31/Agosto
 
 Já iniciei fazendo jejum intermitente de 18 horas
@@ -27,6 +28,7 @@ Omelete de claras com uma gema, linhaça, cebola e pimentões picados.
 - pimentões vermelho e verde picados.
 
 
+---
 ## 01/Setembro
 
 Jejum de 15 horas e meia pois fui visitar minha avó.
@@ -55,6 +57,7 @@ Jejum de 15 horas e meia pois fui visitar minha avó.
 - omelete com 3 claras.
 
 
+---
 ## 02/Setembro
 
 Jejum de 16 horas.
@@ -80,8 +83,10 @@ Frango na panela com legumes, azeite e shoyo.
 
 Resto do Frango na panela com legumes do almoço.
 
-- 150g frango;
+- 150g frango (0g carb);
 
+
+### 02/Setembro - Total de Carboidratos: 
 
 ---
 ## 03/Setembro
@@ -90,7 +95,7 @@ Jejum de 17 horas.
 
 ### Refeição 1 - 13:15
 
-- 50g cenoura crua (2,25g carb lq);
+- 50g cenoura crua (2,25g carb liq);
 - 100g frango grelhado (0g carb);
 - 2 ovos mexidos (1,44g carb);
 - 10g bacon (0g carb).
@@ -104,6 +109,14 @@ Jejum de 17 horas.
 
 **Total de carboidratos: 1g**
 
-### 03/Setembro - Total de Carboidratos: 4,69g
+### Refeição 3 - 20:15
+
+- 2 ovos cozidos (0,54g carb liq);
+- 100g bisteca suína (0g carb);
+- 100g repolho cru (2g carb liq).
+
+**Total de carboidratos: 2,54g**
+
+### 03/Setembro - Total de Carboidratos: 7,23g
 
 
