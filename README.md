@@ -122,4 +122,9 @@ Jejum de 17 horas.
 
 ### 03/Setembro - Total de Carboidratos: 9,11g
 
+---
+## 04/Setembro
 
+Jejum de 18 horas.
+
+### Refeição 1 - 14:15
