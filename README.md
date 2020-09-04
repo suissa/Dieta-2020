@@ -116,10 +116,10 @@ Jejum de 17 horas.
 
 - 2 ovos cozidos (0,54g carb liq);
 - 100g bisteca suína (0g carb);
-- 50g alface americana crua (0,35g carb liq).
+- 125g alface americana crua (0,88g carb liq).
 
-**Total de carboidratos: 0,89g**
+**Total de carboidratos: 1,42g**
 
-### 03/Setembro - Total de Carboidratos: 8,58g
+### 03/Setembro - Total de Carboidratos: 9,11g
 
 
