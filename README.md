@@ -1,6 +1,8 @@
 # Dieta-2020
 Meu diário sobre a dieta cetogênica que iniciei, com adicional de jejum intermitente.
 
+Minha meta é sair de 74.20Kg para 64Kg até final de Setembro, ou seja, em 1 mês.
+
 **Dica**: eu tomo mto café e suco que não trem açúcar nem carboidratos.
 
 ---
@@ -125,6 +127,40 @@ Jejum de 17 horas.
 ---
 ## 04/Setembro
 
-Jejum de 18 horas.
+Jejum de 20 horas.
 
-### Refeição 1 - 14:15
+### Refeição 1 - 16:15
+
+- 50g queijo muçarela (0g);
+- 50g repolho branco cru (1g liq);
+- 40g azeitonas (0,12g);
+- 40g salaminho italiano sadia (1,6g).
+
+**Total de carboidratos: 2,72g**
+
+### Refeição 2 - 22:15
+
+- 210g peito de frango grelhado (0g);
+- 50g repolho branco cru (2g liq);
+- 30g azeitonas (0,09g).
+
+**Total de carboidratos: 2,09g**
+
+### 04/Setembro - Total de Carboidratos: 4,81g
+
+---
+## 05/Setembro
+
+Jejum de 10 horas e hj, é sábado então, vou sair um pouco da dieta pq ninguém é de ferro.
+
+TEVE CHURRASCO e eu bebi!
+
+---
+## 05/Setembro
+
+Domingão saí da dieta novamente, veremos o ganho de peso na Terça pq Segunda é feriado e quero aproveitar pra queimar esse peso adicional e ver em quantos dias eu vou perder 5kg.
+
+---
+## 05/Setembro
+
+Domingão saí da dieta novamente, veremos o ganho de peso na Segunda.
