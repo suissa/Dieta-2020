@@ -156,11 +156,65 @@ Jejum de 10 horas e hj, é sábado então, vou sair um pouco da dieta pq ningué
 TEVE CHURRASCO e eu bebi!
 
 ---
-## 05/Setembro
+## 06/Setembro
 
 Domingão saí da dieta novamente, veremos o ganho de peso na Terça pq Segunda é feriado e quero aproveitar pra queimar esse peso adicional e ver em quantos dias eu vou perder 5kg.
 
 ---
-## 05/Setembro
+## 07/Setembro
 
-Domingão saí da dieta novamente, veremos o ganho de peso na Segunda.
+Jejum de 15 horas, porém destilados a noite:(
+
+
+### Refeição 1 - 13:15
+
+- 100g alcatra;
+- 100g alface americana;
+- tomates cereja;
+- champignons.
+
+**Total de carboidratos: g**
+
+### Refeição 1 - 15:15
+
+- 2 pães de queijo low carb;
+- 1 pãozinho de frango low carb;
+- 30g patê de azeitona preta.
+
+**Total de carboidratos: g**
+
+### Refeição 3 - 23:15
+
+- 1 pão de queijo low carb;
+- 10g salaminho;
+- 50g uva passa branca.
+
+**Total de carboidratos: g**
+
+
+---
+## 08/Setembro
+
+Jejum de 14 horas.
+
+### Refeição 1 - 13:15
+
+- 100g vagem cozida no vapor (4,68g);
+- 160g tilápia grelhada (0g).
+
+**Total de carboidratos: 4,68g**
+
+### Refeição 2 - 16:15
+
+- 87g vagem cozida no vapor (4,07g).
+
+**Total de carboidratos: 4,07g**
+
+### Refeição 3 - 20:00
+
+- 50g queijo mussarela purungo (0g);
+- 100g tilápia grelhada (0g).
+
+**Total de carboidratos: 0g**
+
+### 08/Setembro - Total de Carboidratos: 8,75g
