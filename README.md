@@ -197,7 +197,7 @@ Jejum de 15 horas, porém destilados a noite:(
 
 Jejum de 14 horas e iniciei 3 apps de treinos em casa para ajudar a queimar mais calorias.
 
-### Refeição 1 - 13:15
+### Refeição 1 - 13:00
 
 - 100g vagem cozida no vapor (4,68g);
 - 160g tilápia grelhada (0g).
