@@ -195,7 +195,7 @@ Jejum de 15 horas, porém destilados a noite:(
 ---
 ## 08/Setembro
 
-Jejum de 14 horas.
+Jejum de 14 horas e iniciei 3 apps de treinos em casa para ajudar a queimar mais calorias.
 
 ### Refeição 1 - 13:15
 
