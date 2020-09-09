@@ -218,3 +218,22 @@ Jejum de 14 horas e iniciei 3 apps de treinos em casa para ajudar a queimar mais
 **Total de carboidratos: 0g**
 
 ### 08/Setembro - Total de Carboidratos: 8,75g
+
+
+---
+## 09/Setembro
+
+Jejum de 17 horas e como não emagreci quase nada, tomei 1 cerveja long neck, Skol Puro Malte a tarde.
+
+### Refeição 1 - 12:20
+
+- 1 colher de feijão;
+- 50g de escarola refogada;
+- 50g de farofa com muita carne;
+- 50g de peito de frango grelhado;
+- 50g de salada beterraba com cenoura.
+
+**14:20**
+- 1 long neck Skol Puro Malte (12,5g).
+
+**Total de carboidratos: g**
