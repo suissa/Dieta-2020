@@ -210,10 +210,10 @@ Jejum de 14 horas e iniciei 3 apps de treinos em casa para ajudar a queimar mais
 
 **Total de carboidratos: 4,07g**
 
-### Refeição 3 - 20:00
+### Refeição 3 - 19:20
 
-- 50g queijo mussarela purungo (0g);
-- 100g tilápia grelhada (0g).
+- 50g alface crespa (0g carb liq);
+- 150g tilápia grelhada (0g).
 
 **Total de carboidratos: 0g**
 
