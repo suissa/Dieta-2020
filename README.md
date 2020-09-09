@@ -234,6 +234,11 @@ Jejum de 17 horas e como não emagreci quase nada, tomei 1 cerveja long neck, Sk
 - 50g de salada beterraba com cenoura.
 
 **14:20**
-- 1 long neck Skol Puro Malte (12,5g).
+- 1 long neck Skol Puro Malte 
+
+### Refeição 1 - 16:20
+
+- 200g pernil suíno (0g carb)
+- 12g geléia de pimenta com goiabada (3,4g)
 
 **Total de carboidratos: g**
