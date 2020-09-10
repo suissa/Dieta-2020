@@ -254,7 +254,10 @@ Nem jejuei porra nenhuma VSF, teve xurras ontem, bebi e comi pacas saiudhuidaa.
 ### Refeição 1 - 12:00
 
 - 50g alcatra (0g);
-- 50g uva sem semente (13g);
 - 100g linguiça apimentada (0g).
 
-**Total de carboidratos: 13g**
+**Total de carboidratos:0g**
+
+### Refeição 2 - 15:00
+
+- 100g alcatra (0g);
