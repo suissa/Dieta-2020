@@ -247,7 +247,7 @@ Jejum de 17 horas e como não emagreci quase nada, tomei 1 cerveja long neck, Sk
 
 
 ---
-## 09/Setembro
+## 10/Setembro
 
 Nem jejuei porra nenhuma VSF, teve xurras ontem, bebi e comi pacas saiudhuidaa.
 
@@ -260,4 +260,19 @@ Nem jejuei porra nenhuma VSF, teve xurras ontem, bebi e comi pacas saiudhuidaa.
 
 ### Refeição 2 - 15:00
 
-- 100g alcatra (0g);
+- 30g uva verde sem semente (9g);
+- 100g alcatra (0g).
+
+### Refeição 3 - 18:00
+
+- 50g queijo mussarela purungo (0g);
+- 55g picles (1,49g);
+
+### Refeição 3 - 21:00
+
+- 170g salmão cru (0g);
+- 240g salmão selado (0g).
+
+---
+## 11/Setembro
+
