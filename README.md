@@ -274,5 +274,12 @@ Nem jejuei porra nenhuma VSF, teve xurras ontem, bebi e comi pacas saiudhuidaa.
 - 240g salmão selado (0g).
 
 ---
-## 11/Setembro
+## 14/Setembro
 
+Jejum de 13 horas.
+
+### Refeição 1 - 12:00
+
+- 40g peito de peru;
+- 122g couve reefogada;
+- 50g de bacon.
